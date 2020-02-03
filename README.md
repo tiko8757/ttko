@@ -1,0 +1,2 @@
+# ttko
+my shool
